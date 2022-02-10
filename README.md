@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @FannuThePatient
-- 👀 I’m interested in everyting
+- 👀 I’m interested in everything
